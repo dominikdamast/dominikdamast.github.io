@@ -1,1 +1,0 @@
-# dominikdamast.github.io
